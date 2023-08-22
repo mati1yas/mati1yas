@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Matiyas</h1>
 
 
-- 🔭 I’m currently working on **Lab-Connect**
+- 🔭 I’m currently working on **Mindplex , zebApp **
 
 - 📫 Reach me through **matiyassseifu@gmail.com**
 
