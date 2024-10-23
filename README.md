@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Mindplex, zebApp**
 
-- 📫 Reach me through **matiyassseifu@gmail.com**
+- 📫 Reach me through **matiyassseifu@gmail.com, +251932272724**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
